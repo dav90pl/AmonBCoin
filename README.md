@@ -1,0 +1,2 @@
+# AmonBCoin
+Nowe szybkie zarobki 
